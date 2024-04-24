@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Python and Machine learning
 - 💞️ I’m looking to collaborate on Good companies
-- 📫 How to reach me aishwarya.mailmw91@gmail.com
+- 📫 How to reach me aishwarya.mailme91@gmail.com aishwarya.manoharan18@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
